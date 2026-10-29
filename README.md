@@ -1,1 +1,1 @@
-Creating all inclusive app that solves rides and delivery .Most importantly solving our niche issue
+Creating all inclusive app that solves rides and delivery .Most importantly solving our niche issue!
